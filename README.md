@@ -1,5 +1,5 @@
 # NEW-SUPER-MARIO-BROS-WII-AGAIN
-A new mod that brings new levels!
+A new mod that brings new levels and worlds!
 Subscribe To The Official Youtube: https://www.youtube.com/@TheNSMBWAgainTeam
 # ![Alt text](images/20250309_144242.png)
 # New Levels!
