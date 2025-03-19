@@ -7,5 +7,5 @@ New remade Levels it isn't fancy not at all. But hey it's something new
 # Coming out..Idk when
 I'm working hard on it but I'm not sure when to say it releases i might put up some test WBFS files for people but maybe im not gonna
 # Dev Log
-So far ive taken a break from this beacause of school
+So far ive taken a break from this beacause of school but its 100% going to be worked on soon
 
