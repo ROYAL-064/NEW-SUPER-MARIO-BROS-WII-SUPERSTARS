@@ -8,5 +8,5 @@ New remade Levels it isn't fancy not at all. But hey it's something new for peop
 I'm working hard on it but I'm not sure when to say it releases i might put up some test WBFS files for people but maybe im not gonna
 # Dev Log 2
 So far ive taken a break from this beacause of school but its 100% going to be worked on soon
-2 levels have been Remade! And a Remade logo is in the works 
+2 levels have been Remade! And a Remade logo is in the works And im looking for people to help me out on this project so if you want you can contact me with discord Here: (Havent put the link yet so this text is just here)
 
