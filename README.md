@@ -1,4 +1,4 @@
-# NEW-SUPER-MARIO-BROS-WII-AGAIN
+# NEW SUPER MARIO BROS. WII SUPERSTARS!
 A mod for people who want to play NSMBW with new levels (very original)
 
 Subscribe To The Official Youtube: https://www.youtube.com/@TheNSMBWAgainTeam
